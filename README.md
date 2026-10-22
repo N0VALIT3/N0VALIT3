@@ -1,6 +1,6 @@
 ## ㅤׅ ㅤⓢ𝓸𝓇𝓊　♥︎　𝒮𝑜r𝑒𝗻　꣖͡ ₍ ֢ ֥ ᩙ ֢ ₎ ͡꣓
 
-　　　　　　　　　<a href="https://hits.sh/github.com/N0VALIT3/"><img alt="Hits" src="https://hits.sh/github.com/N0VALIT3.svg?style=plastic&label=%F0%9D%93%9Cedkit%E2%80%99%F0%9D%93%88%20%20%E2%99%A1&extraCount=55&color=4bbfb4&labelColor=1d7279"/></a>
+　　　　　　　　<a href="https://hits.sh/github.com/N0VALIT3/"><img alt="Hits" src="https://hits.sh/github.com/N0VALIT3.svg?style=plastic&label=%F0%9D%93%9Cedkit%E2%80%99%F0%9D%93%88%20%20%E2%99%A1&extraCount=55&color=4bbfb4&labelColor=1d7279"/></a>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
