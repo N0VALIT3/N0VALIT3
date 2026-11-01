@@ -14,4 +14,6 @@
 
 　　　　　　　　[Straw!](https://medicinall.straw.page/)
 
-　♥︎ [Hiii](https://github.com/pt-of-forsaken)
+　　　　　　　　　　⠀TYSM!!
+
+　♥︎ [pt-frskn ship's](https://github.com/pt-of-forsaken)
