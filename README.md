@@ -15,4 +15,4 @@
 
 　　　　　　　　⠀TYSM!!
 
-　　⠀♥︎　　[pt-frskn ship's](https://github.com/pt-of-forsaken)
+　　⠀♥︎　　[pt-frskn ship's Voidpizza Shipper](https://github.com/pt-of-forsaken)
