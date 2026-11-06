@@ -15,4 +15,4 @@
 
 　　　　　　　　⠀TYSM!!
 
-　　⠀♥︎　　[pt-frskn ship's Voidpizza Shipper](https://github.com/pt-of-forsaken)
+　　⠀♥︎　　[pt-frskn ship's Voidpizza Shipper](https://github.com/pt-of-forsaken) & [animal-town Arctic fox](https://github.com/animal-town)
