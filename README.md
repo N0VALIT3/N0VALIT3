@@ -9,7 +9,7 @@
 
 　　　　　　　　⠀TYSM!!
 
-　⠀♥︎　　[pt-frskn ship's Voidpizza Shipper](https://github.com/pt-of-forsaken) & [animal-town Arctic fox](https://github.com/animal-town) & [pt-everypony pony town's Medkit](https://github.com/pt-everypony)
+- [pt-frskn ship's Voidpizza Shipper](https://github.com/pt-of-forsaken) & [animal-town Arctic fox](https://github.com/animal-town) & [pt-everypony pony town's Medkit](https://github.com/pt-everypony)
 
 [pt-ship-nominations](https://github.com/pt-ship-nominations) with [@ss0rucr](https://github.com/ss0rucr)/[@S3edly](https://github.com/S3edly) <3
 
