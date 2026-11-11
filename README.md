@@ -14,7 +14,7 @@
 
 [pt-ship-nominations](https://github.com/pt-ship-nominations) with [@ss0rucr](https://github.com/ss0rucr)/[@S3edly](https://github.com/S3edly) <3
 
-[pt-friendships tysm who add me!](https://github.com/pt-friendships)
+[pt-friendships tyy my bff's:3](https://github.com/pt-friendships)
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
