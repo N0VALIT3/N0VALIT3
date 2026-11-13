@@ -22,4 +22,3 @@
   </a>
 </p>
 
-![287 sin título_20261112185121.png](https://github.com/user-attachments/assets/f9b6fabf-e4cb-4326-907c-34f455dda0f5)
