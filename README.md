@@ -21,3 +21,5 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fku4x7cca2kh2l4ixtdmh4p2ce&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ededed&bar_color_cover=false">
   </a>
 </p>
+
+![287 sin título_20261112185121.png](https://github.com/user-attachments/assets/f9b6fabf-e4cb-4326-907c-34f455dda0f5)
