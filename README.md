@@ -4,6 +4,8 @@
 
 　　　　　Sign my [atabook](https://dd0ctor.atabook.org/) & [Straw!!](https://medicinall.straw.page/)
 
+![hii](https://github-production-user-asset-6210df.s3.amazonaws.com/239938820/704420632-f7d21da9-a572-4884-b436-734f4887ae24.png?X-Amz-Algorithm=AWS4-HMAC-SHA256&X-Amz-Credential=AKIAVCODYLSA53PQK4ZA%2F20261113%2Fus-east-1%2Fs3%2Faws4_request&X-Amz-Date=20261113T011058Z&X-Amz-Expires=300&X-Amz-Signature=000729100935381dcbb3baadb93fc1f40e205d98301d0aca4f5ba6b20940d8e3&X-Amz-SignedHeaders=host&response-content-type=image%2Fpng)
+
 　pls, read the [document](https://docs.google.com/document/d/1xyQKaJMk572q85EjMQB2vKVMlEApbjXd7PjgoIRTkck/edit?pli=1&tab=t.0) and avoid interanting w these people!!
 
 
