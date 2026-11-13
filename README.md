@@ -26,4 +26,4 @@
 
 mostly sitting with my bf or family/friends :3
 
-![sweetie](https://github-production-user-asset-6210df.s3.amazonaws.com/239938820/704431398-7def944b-64aa-404c-a079-5db8ea2267e6.gif?X-Amz-Algorithm=AWS4-HMAC-SHA256&X-Amz-Credential=AKIAVCODYLSA53PQK4ZA%2F20261113%2Fus-east-1%2Fs3%2Faws4_request&X-Amz-Date=20261113T012214Z&X-Amz-Expires=300&X-Amz-Signature=90bfdfcf453c4350c0fbce60b65fc856763fb6ee04d7e92cde037db3e52ea225&X-Amz-SignedHeaders=host&response-content-type=image%2Fgif)
+![sweetie](https://github-production-user-asset-6210df.s3.amazonaws.com/239938820/704462263-c0d408d8-98de-4e2c-a5aa-a87e22f27991.gif?X-Amz-Algorithm=AWS4-HMAC-SHA256&X-Amz-Credential=AKIAVCODYLSA53PQK4ZA%2F20261113%2Fus-east-1%2Fs3%2Faws4_request&X-Amz-Date=20261113T015034Z&X-Amz-Expires=300&X-Amz-Signature=c54f1eb0ee6cf1afa6bfeb869049adb25da42c85e8e11c950648cbb6113c5068&X-Amz-SignedHeaders=host&response-content-type=image%2Fgif)
