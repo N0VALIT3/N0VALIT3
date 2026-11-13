@@ -4,8 +4,6 @@
 
 　　　　　Sign my [atabook](https://dd0ctor.atabook.org/) & [Straw!!](https://medicinall.straw.page/)
 
-![nose](https://github.com/user-attachments/assets/62d8f150-0fe3-4fa7-bb78-45fa4147248c)
-
 　pls, read the [document](https://docs.google.com/document/d/1xyQKaJMk572q85EjMQB2vKVMlEApbjXd7PjgoIRTkck/edit?pli=1&tab=t.0) and avoid interanting w these people!!
 
 
