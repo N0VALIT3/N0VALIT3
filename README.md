@@ -21,6 +21,8 @@
   </a>
 </p>
 
+![hii](https://github-production-user-asset-6210df.s3.amazonaws.com/239938820/711371342-497d9295-2bc1-4a06-b3b5-20d07a0774eb.png?X-Amz-Algorithm=AWS4-HMAC-SHA256&X-Amz-Credential=AKIAVCODYLSA53PQK4ZA%2F20261118%2Fus-east-1%2Fs3%2Faws4_request&X-Amz-Date=20261118T234324Z&X-Amz-Expires=300&X-Amz-Signature=9c14e38aa526b30d694c56590fe6e20305e4d23f65fe771b301d703e37aca1b3&X-Amz-SignedHeaders=host&response-content-type=image%2Fpng)
+
 　　me nd my [pookie](https://github.com/ss0rucr) btw!
 
 ![sweetie](https://github-production-user-asset-6210df.s3.amazonaws.com/239938820/704462263-c0d408d8-98de-4e2c-a5aa-a87e22f27991.gif?X-Amz-Algorithm=AWS4-HMAC-SHA256&X-Amz-Credential=AKIAVCODYLSA53PQK4ZA%2F20261113%2Fus-east-1%2Fs3%2Faws4_request&X-Amz-Date=20261113T015034Z&X-Amz-Expires=300&X-Amz-Signature=c54f1eb0ee6cf1afa6bfeb869049adb25da42c85e8e11c950648cbb6113c5068&X-Amz-SignedHeaders=host&response-content-type=image%2Fgif) mostly sitting w my bf or friends
