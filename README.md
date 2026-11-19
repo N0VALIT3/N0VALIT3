@@ -25,4 +25,4 @@
 
 　　me nd my [pookie](https://github.com/ss0rucr) btw!
 
-💝 mostly sitting w my bf or friends
+![<3](https://github-production-user-asset-6210df.s3.amazonaws.com/239938820/711538798-123aea6a-42f1-4568-86f3-9289969fe2a7.gif?X-Amz-Algorithm=AWS4-HMAC-SHA256&X-Amz-Credential=AKIAVCODYLSA53PQK4ZA%2F20261119%2Fus-east-1%2Fs3%2Faws4_request&X-Amz-Date=20261119T031634Z&X-Amz-Expires=300&X-Amz-Signature=dfdc675b366f4e3c44bdff37faa573fc40ac999987ab76d584ad80f612465304&X-Amz-SignedHeaders=host&response-content-type=image%2Fgif) mostly sitting w my bf or friends
