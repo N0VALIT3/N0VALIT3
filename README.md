@@ -1,5 +1,5 @@
 
-　⠀ This is still a wip heh.
+　⠀ This is still in wip heh.
 
 　　　　　Sign my [atabook](https://dd0ctor.atabook.org/) & [Straw!!](https://medicinall.straw.page/)
 
