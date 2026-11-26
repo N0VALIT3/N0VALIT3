@@ -2,7 +2,6 @@
 　⠀ This is still in wip heh.
 
 ![:3](https://github-production-user-asset-6210df.s3.amazonaws.com/239938820/719606133-73a05d52-a04a-4cdb-98bb-f2e7728319c9.png?X-Amz-Algorithm=AWS4-HMAC-SHA256&X-Amz-Credential=AKIAVCODYLSA53PQK4ZA%2F20261126%2Fus-east-1%2Fs3%2Faws4_request&X-Amz-Date=20261126T023156Z&X-Amz-Expires=300&X-Amz-Signature=52877e356ad7dbb38ac7f3bbff56458ddfb00555542c33446b87ab5f268f83a3&X-Amz-SignedHeaders=host&response-content-type=image%2Fpng)
-
 <details>
   <summary>　</summary>
   
