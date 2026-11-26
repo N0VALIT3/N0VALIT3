@@ -9,6 +9,8 @@
 
 　pls, read the [document](https://docs.google.com/document/d/1xyQKaJMk572q85EjMQB2vKVMlEApbjXd7PjgoIRTkck/edit?pli=1&tab=t.0) and avoid interanting w these people!!
 
+　
+
 <details>
  <summary>　nominations!</summary>
 
