@@ -3,7 +3,7 @@
 
 　　　　　Sign my [atabook](https://dd0ctor.atabook.org/) & [Straw!!](https://medicinall.straw.page/)
 
-![.](https://cdn.discordapp.com/attachments/1372388335494103080/1574157375294808074/287_sin_titulo_20261122140835.png?ex=6b049fcc&is=6b034e4c&hm=702fba7c7569cd99fcd0ab94b2a2ee8b5c07eb53ff1e34ff86ce97d53b5cd515&)
+Leave me a wish on my [tree](https://decomytree.net/t/Yp2M7G) heh!
 
 　pls, read the [document](https://docs.google.com/document/d/1xyQKaJMk572q85EjMQB2vKVMlEApbjXd7PjgoIRTkck/edit?pli=1&tab=t.0) and avoid interanting w these people!!
 
