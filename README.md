@@ -1,9 +1,7 @@
 
 　⠀ This is still in wip heh.
 
-　　　　　Sign my [atabook](https://dd0ctor.atabook.org/) & [Straw!!](https://medicinall.straw.page/)
-
-Leave me a wish on my [tree](https://decomytree.net/t/Yp2M7G) heh!
+　　　　　Sign my [atabook](https://dd0ctor.atabook.org/) & [Straw!!](https://medicinall.straw.page/) & leave me a wish on my [tree](https://decomytree.net/t/Yp2M7G) heh!
 
 　pls, read the [document](https://docs.google.com/document/d/1xyQKaJMk572q85EjMQB2vKVMlEApbjXd7PjgoIRTkck/edit?pli=1&tab=t.0) and avoid interanting w these people!!
 
@@ -20,8 +18,6 @@ Leave me a wish on my [tree](https://decomytree.net/t/Yp2M7G) heh!
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fku4x7cca2kh2l4ixtdmh4p2ce&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ededed&bar_color_cover=false">
   </a>
 </p>
-
-![hii](https://github-production-user-asset-6210df.s3.amazonaws.com/239938820/711371342-497d9295-2bc1-4a06-b3b5-20d07a0774eb.png?X-Amz-Algorithm=AWS4-HMAC-SHA256&X-Amz-Credential=AKIAVCODYLSA53PQK4ZA%2F20261118%2Fus-east-1%2Fs3%2Faws4_request&X-Amz-Date=20261118T234324Z&X-Amz-Expires=300&X-Amz-Signature=9c14e38aa526b30d694c56590fe6e20305e4d23f65fe771b301d703e37aca1b3&X-Amz-SignedHeaders=host&response-content-type=image%2Fpng)
 
 　　me nd my [pookie](https://github.com/ss0rucr) btw!
 
