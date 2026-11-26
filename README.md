@@ -5,6 +5,14 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=5E5390&width=510&height=55&lines=%E3%80%80%E3%80%80And+I+am+the+idiot+w+the+painted+face;%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E2%A0%80In+the+corner%2C+taking+up+space;But+when+HE+walks+in%2C+I'm+loved%2C+I'm+loved;%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E2%A0%80%E2%A0%80%E2%A0%80Me+and+MY+husband...;%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E2%A0%80%E2%A0%80..+We're+doing+better+%E2%99%A1;%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%80%E2%A0%8001%2F01%2F2026++%3C3)](https://git.io/typing-svg)
 
+<details>
+  <summary>Haz clic aquí para ver más</summary>
+  
+  Aquí va todo el contenido que estará oculto hasta que el usuario haga clic.
+  * Puedes usar listas.
+  * Puedes agregar **negritas** o bloques de código.
+</details>
+
 　　　　　Sign my [atabook](https://dd0ctor.atabook.org/) & [Straw!!](https://medicinall.straw.page/) & leave me a wish on my [tree](https://decomytree.net/t/Yp2M7G) heh!
 
 　pls, read the [document](https://docs.google.com/document/d/1xyQKaJMk572q85EjMQB2vKVMlEApbjXd7PjgoIRTkck/edit?pli=1&tab=t.0) and avoid interanting w these people!!
