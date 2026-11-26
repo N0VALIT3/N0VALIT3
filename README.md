@@ -12,6 +12,7 @@
 
 <details>
  <summary>nominations</summary>
+
 - [pt-frskn Voidpizza Shipper](https://github.com/pt-of-forsaken) & [animal-town Arctic fox](https://github.com/animal-town) & [pt-everypony Medkit (P!)](https://github.com/pt-everypony) & [pt-hall-of-fans](https://github.com/pt-hall-of-fans) & [pt-everypony couples](https://github.com/pt-everypony) & [pt-ship-nominations](https://github.com/pt-ship-nominations) with [@ss0rucr](https://github.com/ss0rucr)/[@S3edly](https://github.com/S3edly) <3 & [pt-friendships](https://github.com/pt-friendships) tyy family:3
 </details>
 
