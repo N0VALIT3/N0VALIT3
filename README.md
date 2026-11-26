@@ -8,12 +8,12 @@
 　　　　　Sign my [atabook](https://dd0ctor.atabook.org/) & [Straw!!](https://medicinall.straw.page/) & leave me a wish on my [tree](https://decomytree.net/t/Yp2M7G) heh!
 
 　pls, read the [document](https://docs.google.com/document/d/1xyQKaJMk572q85EjMQB2vKVMlEApbjXd7PjgoIRTkck/edit?pli=1&tab=t.0) and avoid interanting w these people!!
-
 　　　　　　　　⠀TYSM!!
 
 <details>
  <summary>nominations</summary>
 [pt-frskn Voidpizza Shipper](https://github.com/pt-of-forsaken) & [animal-town Arctic fox](https://github.com/animal-town) & [pt-everypony Medkit (P!)](https://github.com/pt-everypony) & [pt-hall-of-fans](https://github.com/pt-hall-of-fans) & [pt-everypony couples](https://github.com/pt-everypony) & [pt-ship-nominations](https://github.com/pt-ship-nominations) with [@ss0rucr](https://github.com/ss0rucr)/[@S3edly](https://github.com/S3edly) <3 & [pt-friendships](https://github.com/pt-friendships) tyy family:3
+</details>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
