@@ -8,7 +8,8 @@
 <details>
   <summary>　</summary>
   
-　　　　　　　　　[pt-ship-nominations](https://github.com/pt-ship-nominations) & [pt-everypony couples](https://github.com/pt-everypony) with my sweet [@ss0rucr](https://github.com/ss0rucr)/[@S3edly](https://github.com/S3edly)<3
+
+[pt-ship-nominations](https://github.com/pt-ship-nominations) & [pt-everypony couples](https://github.com/pt-everypony) with my sweet [@ss0rucr](https://github.com/ss0rucr)/[@S3edly](https://github.com/S3edly)<3
 </details>
 
 　　　　　Sign my [atabook](https://dd0ctor.atabook.org/) & [Straw!!](https://medicinall.straw.page/) & leave me a wish on my [tree](https://decomytree.net/t/Yp2M7G) heh!
