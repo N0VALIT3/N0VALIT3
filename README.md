@@ -14,7 +14,7 @@
 
 　　　　　Sign my [atabook](https://dd0ctor.atabook.org/) & [Straw!!](https://medicinall.straw.page/) & leave me a wish on my [tree](https://decomytree.net/t/Yp2M7G) heh!
 
-　pls, read the [document](https://docs.google.com/document/d/1xyQKaJMk572q85EjMQB2vKVMlEApbjXd7PjgoIRTkck/edit?pli=1&tab=t.0) and avoid interanting w these people!!
+　pls, read the [document](https://docs.google.com/document/d/1xyQKaJMk572q85EjMQB2vKVMlEApbjXd7PjgoIRTkck/edit?pli=1&tab=t.0) and avoid interanting w these people!!　⠀ If you happen to follow them, it would be better for your own peace of mind to block them.
 
 　
 
